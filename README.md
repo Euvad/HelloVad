@@ -3,3 +3,4 @@
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on basically anything.
 - 📫 How to reach me VAD#3222
+- a lot of love for ccman32, ExtazyHosting and XlordX <3
